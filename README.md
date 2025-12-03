@@ -1,0 +1,1 @@
+# okinawatrip1205
